@@ -1,1 +1,1 @@
-I'm Abdaala Atia, a Computer Science student at Nile University.
+I'm Abdala Atia, a Computer Science student at Nile University.
