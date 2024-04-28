@@ -1,4 +1,1 @@
-Gmail: abdalaalaa17@gmail.com
-LinkedIn: Abdala Atia
-IG: abdala__alaa
-Facebook: Abdala Alaa
+I'm Abdaala Atia, a Computer Science student at Nile University.
